@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ppcppankaj
-- 👀 I’m interested in voding
+- 👀 I’m interested in coding
 - 📫 How to reach me ...
 - Whatsapp - +91-999164192
 <!---
